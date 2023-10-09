@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @SirOink, I'm a robot
+- 👋 Hi, I’m @SirOink, I'm a cybernetically enhanced human inprisoned in :shipit::shipit::shipit::shipit::shipit::shipit::shipit::shipit:
